@@ -6,3 +6,4 @@ info for log
 kek lol
 aaaa 
 amogus
+o
