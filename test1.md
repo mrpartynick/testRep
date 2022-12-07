@@ -6,7 +6,7 @@ info for log
 kek lol
 aaaa 
 amogus
-o
+o sosi huy
 
 
 
